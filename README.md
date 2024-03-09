@@ -2,7 +2,7 @@
 - 👀 I made a gatg fan game called TerrorMonkeys
 - 🌱 I’m currently learning c#
 - 😄 Pronouns: skibidi fly ! FLY
-- ⚡ Fun fact: Floated is a skid and i make some stuff with legal gtag mods !
+- ⚡ Fun fact: I take legal gorilla tag mods and make them illegal so you can use them in public !
 
 <!---
 skibidi
